@@ -1,4 +1,4 @@
-# couple of vizualiziations[learning doesnt happen anymore if you dont evolv' to pubmed/ncbi filtering :) ]
+# qck.notes later, heres bio'infer 
 
 ## Comapcted cognition[s'bit is the product i use for it]
 <img width="552" height="160" alt="image" src="https://github.com/user-attachments/assets/63593954-1539-493d-be89-9b7319ae7560" />
